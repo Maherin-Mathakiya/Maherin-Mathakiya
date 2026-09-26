@@ -57,15 +57,11 @@
 ## 🎓 Education
 
 **Master of Science in Information Technology**
-
 Charotar University of Science and Technology (CHARUSAT)
-
 **2025 – 2027**
 
 **Bachelor of Science in Information Technology**
-
 Charotar University of Science and Technology (CHARUSAT)
-
 **2022 – 2025**
 
 ---
